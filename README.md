@@ -1,2 +1,0 @@
-#WD
-wedding plan
